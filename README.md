@@ -1,2 +1,2 @@
 
-Ficheiros de apoio ao projeto de AED (DEISI Rockstar)
+Ficheiros de apoio ao projeto de AED (Rock in DEISI)
